@@ -1,0 +1,1 @@
+For recurring meetings, keep a single document named for the meeting title. Jot down notes either during the meeting or immediately after. Capture action items as you go, and transfer them to your work journal when the meeting is over.

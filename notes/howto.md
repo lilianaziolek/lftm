@@ -1,0 +1,1 @@
+Create a separate document for each project that you have planned or in the works. Write down your thoughts and ideas, paste in URLs of relevant project docs, and write preliminary to-dos. Don't worry about over-organizing: this is a place for you to brain dump and free your mind from having to remember a thousand details.
